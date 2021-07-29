@@ -1,7 +1,7 @@
 # stoplight #
 A safe forum for whistleblowers to expose gaslighting campaigns in schools, organizations, and communities.
 
-Gaslighting is a form of communal intolerance and abuse against segrated individuals. 
+Gaslighting is a form of communal intolerance and abuse against segregated individuals. 
 
 While the reasons for such coordinated hatred and abuse are manifold and nothing new in the course of human history, the rising popularity of this method of attack is due to its effectiveness and zero risk for attackers. The ability to coordinate such a campaign is made exceedingly simple given our connected society, where each individual carries a smart phone attached to social media. It is these communication channels that enable the attack to take place as well as providing a secure means to withold the evidence of the campgain from any would-be whistle-blowers or legal analysis.
 
