@@ -17,3 +17,10 @@ Abusers are either adjacent or above the targeted individual, such that any whis
 My only idea so far, is for targets to amass evidence using the same social media that is being used against them. And to connect people within the community to possibly find allies, so that the campaign can be terminated.
 
 Please contact me, Michael Gilson, at electronpusher at gmail dot com, if you are interested in helping or have ideas.
+
+-- 
+
+We (I) should look into various forums or communities where people like this gather, to see who wants to build this and/or use it. 
+And all ideas welcome. This is the proto-idea.
+The easiest place to start is Reddit.
+Also, there may be things like this out there already which would be great.
